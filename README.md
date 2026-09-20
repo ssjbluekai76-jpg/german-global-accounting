@@ -1,0 +1,1 @@
+# german-global-accounting
